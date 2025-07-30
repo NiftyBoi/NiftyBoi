@@ -20,4 +20,4 @@
 ---
 
 ✨ Siempre aprendiendo, siempre creando.  
-🧸 Gracias por pasar por aquí.
+Gracias por pasar por aquí.
